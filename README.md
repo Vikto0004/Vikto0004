@@ -1,4 +1,4 @@
-![](https://i.ibb.co/VgxFw1N/my-logo.png)
+![](https://i.ibb.co/1K2rJ2V/my-logo-update.jpg)
 
 # Hi everyone! 👋
 
